@@ -24,3 +24,4 @@ That is really fun. It has never happened that the asteroid comes within 20000 m
 13.
 14. later, etc
 
+https://drive.google.com/file/d/1XF2Y6rKgwxI81HLKIJ_AY2MxQP5iJn-O/view?usp=drivesdk
